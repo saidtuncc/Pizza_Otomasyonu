@@ -12,7 +12,7 @@
 
 ## Grup Üyeleri (15.Grup)
 - Said Tunç
-- Rahime Demiralay
+
 
 ## Hakkımda
 
